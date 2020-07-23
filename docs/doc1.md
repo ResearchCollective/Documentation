@@ -14,4 +14,4 @@ The maturation of the decentralized science eco-system, enabling...
 
   * Why would a peer-reviewer allow a groundbreaking thesis to be published that may trivialize their own research, or threaten their financial interests?
 
-  * Why would a peer-reviewer allow a groundbreaking thesis to be published that may trivialize their own research, or threaten their financial interests?
+  * Examples: Parapsychology, Unified Theory, Holistic medicine
